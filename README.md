@@ -4,7 +4,5 @@ New articles and printfixed unnew articles.
 ## Newest
 
 ### Coal Job Gain High
-
-BB winfulwise saves coal industry. Coal industry has 771 new jobs. Party members predicted 500 new jobs. BB truthfulwise predicted 771 new jobs.
-
-
+#### 19 January 2018
+BB winfulwise saves coal industry. Coal industry get 771 new jobs. Party members predicted 500 new jobs. BB truthfulwise predicted 771 new jobs. West Virginia, Virginia, and Pennsylvania get new coal jobs. Ohio, Kentucky, and Maryland unget coal jobs. BB says Ohio, Kentucky, and Maryland unget jobs because their coal produce becomed efficientful.
